@@ -14,7 +14,7 @@ Nick has been traveling most of his life and has been to all 7 continents and 65
 
 Julie
 -----------
-Julie started off her travel career with a study abroad in college in Tanzania studying hyenas, she was also in the Peace Corps in a small village in Panama for three years.
+Julie started off her travel career with a study abroad in college in Keyna studying hyenas, she was also in the Peace Corps in a small village in Panama for three years.
 
 <div class="post-image post-image--split">
     <img src="../images/Photo_2018-08-23_05-16-45_PM.png" alt="" />
